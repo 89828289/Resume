@@ -6,7 +6,9 @@
 
 Контактные данные: 89823929935, manyhka67@mail.ru .
 
-[фото](https://drive.google.com/file/d/1xgokpCjhlGWWTAueZOE4pWe4bqBMDU6m/view?usp=sharing)
+![2022-11-10_11-10-33](https://user-images.githubusercontent.com/114929549/201150745-f76c2b12-6ddb-4241-9239-f2fc1477492b.png)
+
+
 
 
 ## Цель:
